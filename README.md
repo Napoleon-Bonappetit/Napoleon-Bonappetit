@@ -10,3 +10,6 @@
 [Sign my atapage pls](https://bleedingcannibal.atabook.org/)
 
 [Draw smt on my straw?](https://artplusmessages.straw.page/)
+
+
+[my tiktok! - for art.](https://www.tiktok.com/@donk3ysss?_t=ZG-8tvxTh7M2rY&_r=1)

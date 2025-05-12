@@ -13,3 +13,7 @@
 
 
 [my tiktok! - for art.](https://www.tiktok.com/@donk3ysss?_t=ZG-8tvxTh7M2rY&_r=1)
+
+
+
+![](https://komarev.com/ghpvc/?username=BleedingCannibal&abbreviated=true&color=grey)

@@ -1,15 +1,6 @@
+![★](https://github.com/Napoleon-Bonappetit/Napoleon-Bonappetit/blob/08197033a345e52468ae610525e78bd580648bcc/tumblr_dff1c3df73c43bc58520b70ae32917fc_930909a5_540%20(1).gif)
 
 
-
-![★](https://github.com/STERNEN-KIND/STERNEN-KIND/blob/f8642b08bd4cbc137ae3796f34ecc95bc0faec23/tumblr_5ad82065de4ad0a89ed86276a3749c68_4ec6621e_640.gif)
-
-
-[Sign my atapage pls](https://bleedingcannibal.atabook.org/)
-
-[Draw smt on my straw?](https://artplusmessages.straw.page/)
-
-
-[my tiktok! - for art.](https://www.tiktok.com/@donk3ysss?_t=ZG-8tvxTh7M2rY&_r=1)
 
 
 
